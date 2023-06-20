@@ -1,4 +1,4 @@
-## Hello, world! This is my portfolio, explore every corner of it and feel free to reach me out any time.
+## Hello, world! This is my portfolio. Feel free to reach me out any time.
 
 ### My stats
 
